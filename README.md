@@ -1,2 +1,1 @@
-# 2018
-2018 Jazz Festival
+# 2018 Festival Issues
